@@ -1,0 +1,2 @@
+# BASSAMPP
+BASSAM privacy policy
